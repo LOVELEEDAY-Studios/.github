@@ -1,3 +1,5 @@
+![LOVELEEDAY. Pure intelligence. For a fuller life.](banner.png)
+
 ## LOVELEEDAY
 
 Pure intelligence. For a fuller life.
